@@ -14,4 +14,4 @@ Meu nome é Giovani Ferrari
 
 @giovaniferrari07
 
-![https://tenor.com/pt-BR/view/hat-kid-dance-dancing-smug-cartoon-gif-22126176]
+![hat-kid-dance](https://github.com/giovaniferrari2a/giovaniferrari2a/assets/169150288/30b2d406-8dd0-4460-a660-7568fb1da7ff)
