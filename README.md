@@ -11,3 +11,7 @@ Meu nome é Giovani Ferrari
 ### Você pode entrar em contato comigo 📫
 
 00001073738097sp@al.educacao.sp.gov.br
+
+@giovaniferrari07
+
+https://tenor.com/bE0bY.gif
